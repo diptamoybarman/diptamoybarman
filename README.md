@@ -42,7 +42,7 @@ Whether it’s optimizing a **funnel**, automating a **CRM**, or creating intell
 
 ## 📫 Let’s Connect
 
-- **LinkedIn:** [your-linkedin-url]
+- **LinkedIn:** www.linkedin.com/in/diptamoy-barman
 - **Email:** diptamoybarman@gmail.com
 
 ---
